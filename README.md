@@ -1,1 +1,1 @@
-![](https://picsum.photos/500)
+[.](https://en.wikipedia.org/wiki/Rick_Astley)
